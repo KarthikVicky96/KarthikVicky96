@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @ Karthik Sivanur
 - 👀 I’m interested in Everything 
-- 🌱 I’m currently learning to code
+- 🌱 I’m currently in my intial phase on How to code
 - 💞️ I’m looking to collaborate on learning how to code and make life easier
 - 📫 You can reach me @ karthiksivanur301096@gmail.com
 
