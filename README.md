@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @ Karthik Sivanur
-- 👀 I’m interested in Everything 
+- 👀 I’m interested in Fantasies 
 - 🌱 I’m currently work in IT sector 
-- 💞️ I’m looking to collaborate on learning and automate taks and make life easier
+- 💞️ I’m looking to collaborate on learning and automate taks and make life easier 
 - 📫 You can reach me @ karthiksivanur301096@gmail.com
 
 <!---
